@@ -1,3 +1,3 @@
-## Welcome to Innerstellar Archtect Summit
+## Welcome to Interstellar Architect  Summit
 
 
